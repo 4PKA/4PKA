@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @4PKA
+- 👀 I’m interested in AI
